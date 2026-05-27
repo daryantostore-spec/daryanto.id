@@ -1,0 +1,2 @@
+# daryanto.id
+VVIP BOT TRADING XAUUSD, BTCUSD
